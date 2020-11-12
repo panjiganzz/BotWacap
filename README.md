@@ -1,5 +1,5 @@
 # BOT P4TR1CK
-BOT WHATSAPP HP PANJI GANZ
+BOT WHATSAPP BY PANJI GANZ
 
 ### Alat dan Bahan
 Siapin alat dan bahannya.
